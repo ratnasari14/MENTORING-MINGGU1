@@ -1,2 +1,0 @@
-# MENTORING-MINGGU1
- 
